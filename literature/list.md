@@ -6,19 +6,20 @@
 
 > Twee boeken met uitgebreide beschrijving van de restauratie van de bovenkerk.
 
+### Onbekend. Tot Tymmeringe van Zanter Niclays. Stichting behoud Bovenkerk, ….
+
+> Klein boekje over de bovenkerk met enkele geraadpleegde bronnen. Meer ter vermaak dan geschikt voor onderzoek. 
 
 ## Categorie C
 
-Offringa, R, e.a. Restauratie van de St. Nicolaas- of Bovenkerk te Kampen. Document, maart 1966.
+### Offringa, R, e.a. Restauratie van de St. Nicolaas- of Bovenkerk te Kampen. Document, maart 1966. C00076.
+
 > Korte opsomming van de bevindingen van het onderzoek, de werkzaamheden en de bekostiging. 
 
-C00076 - Restauratie bovenkerk
-> ——
+### Alkema, W. H. Dagboek betreffende de restauratie van de Bovenkerk te Kampen. Dagboek, 1955 - 1973. C01319, C01320, C01821.
 
-C01319 - Dagboeken betreffende restauratie
-C01320
-C01821 
-> ——
+> Extreem uitgebreide beschrijving van de gang van zaken tijdens de restauratie. Een geweldig goede bron ten behoeve van de restauratie tijdperk. Maar wellicht minder zo ten behoeve van mijn onderzoek. 
+
 
 ### Onbekend. St. Nicolaas- of Bovenkerk. Gemeente Kampen, Onbekend. C01746.
 
@@ -70,7 +71,9 @@ P00110 / 6 - Stadsbestuur ivm. Bovenkerk
 P00110 / 9 - Bodemonderzoek Bovenkerk 1961
 > ——
 
-## Almanak
+## Almanak - Speciale periodiek
+
+— Zitten een aantal belangrijke teksten in! Noodzakelijk om te raadplegen.
 
 P00001/3 A3 - 1930 - ivm. Restauratie
 > ——
@@ -80,7 +83,6 @@ P00001/29 A3 - 1961/1962 ivm. Restauratie
 
 P00001/30 A3 - 1962/63 ivm. Restauratie
 > ——
-
 
 ## Kranten
 
