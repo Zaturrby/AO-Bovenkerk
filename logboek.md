@@ -2,31 +2,31 @@
 
 Dit logboek heeft als doelstelling duidelijk zicht te krijgen op de werkzaamheden die verricht zijn.
 
-## Zondag 14 December - Verkenning
+## Zondag 14 December - Verkenning - 2/3 uur
 
 Eerste serieuze verkenning van het onderzoek. Na een korte verkenning van het online materiaal en de UvA bibliotheek bleek dat dat hoogstwaarschijnlijk een dood spoor zou zijn. Er waren zeer beperkt teksten. Maar er schoot me in het hoofd dat Kampen een Theologische Universiteit en een kunstacademie heeft gehad. De bollebozen van die twee samen hebben vast niet kunnen weerstaan om het een en ander te schrijven over de bovenkerk.
 
-## Dinsdag 16 December - Bovenkerk, Stadsarchief en OBK
+## Dinsdag 16 December - Bovenkerk, Stadsarchief en OBK - 6 uur
 
 Mijn vermoedens waren bevestigd. De religieuze bibliotheek was echter een redelijk dood spoor. Het stadsarchief en de normale bibliotheek bleek echter een goudmijn. Nadat mij de zoekmachine was aanwezen kwam er een zee aan materiaal tevoorschijn. Helaas had ik alleen de middag beschikbaar en heb ik maar beperkt materiaal kunnen bekijken. Ik begon echter een degelijker idee van het onderzoek te krijgen. Nadat het archief sloot bood ook de OBK nog een aantal interessante overzichtswerken aan, erg bruikbaar om een overzicht over de Kamperse historie te verkrijgen. 
 
 Ook had ik de kerk zelf bezichtigd. Aan de buitenkant waren gelijk al een groot aantal bouwsporen zichtbaar. Veel verschillende steenkleuren, bogen, dichtgemetselde ramen, rare decoraties, etc. Teveel om op te noemen. Er is vast meer als genoeg over deze kerk te schrijven was duidelijk.
 
-## Zondag 21 December - Dienst bijgewoond 
+## Zondag 21 December - Dienst bijgewoond - 4 uur
 
 Een dienst van de Hervormde gemeente. Heerlijk droog. Maar je moet wat om een kerk binnen te komen. Later hoorde ik ook dat ik eventueel een afspraak met de koster kon maken, maar dit was nog even makkelijker. Binnenin een aantal ornamenten gezien, wat muurschilderingen, en een aantal eigenaardigheden zoals een verdikking in een colonet. Bij het orgel kreeg ik de vraag; is dit nou architectuur of interieur? Er zitten zeer veel bouwkundige elementen in, zodat het haast als architectuur te beschouwen valt… Is het een bouwfase? hmm. Helaas werd ik er snel weer uitgegooid, de hervormde kerk werkt efficient.
 
-## Maandag 22 December - OBK
+## Maandag 22 December - OBK - 6 uur
 
 Een dag openbare bibliotheek. Een aantal werken daar verkend en geleend. Van prentenboeken tot grotere naslag werken. Twee waardevolle gevonden. Een gigantisch overzichtwerk en een ander kleiner werk over Kampen. Veel interessante informatie over de bestuurlijke indeling aan het licht gekomen. Er is niet echt sprake van een religieuze opdrachtgever! De stad heeft alles gedaan. Verder goed zicht gekregen op de bouwfases van Kampen als geheel, haar trots en haar val.
 
-## Dinsdag 23 December - Stadsarchief
+## Dinsdag 23 December - Stadsarchief - 6 uur
 
 Deze dag heb ik heel duidelijk materiaal verzameld. Ik heb het hele archief leeggezogen, hoewel er nog vast veel meer is. Tot nu toe heb ik het beperkt tot literatuur onderzoek. Geen archivalia in mijn vingers gehad, hoewel ik er wel geinteresseerd in ben. Ik wil graag mooie materialen ontsluiten.   Zeer succesvol, goede literatuurlijst is in opbouw. Ook een nieuw plan om het Frans Walkate archief ook maar eens aan te doen voor hun collectie Kamper Almanakken en natuurlijk hun collectie te verkennen, hoewel die wel een ander tijdvak bestrijkt. 
 
 Daarnaast heb ik veel informatie over Kampen tot me genomen. Ik heb weer een stuk breder zicht gekregen op de Kamper historie. Ik zit haast te denken dat ik nog een wandeling of twee door de stad moet maken om alles te kunnen plaatsen. Dat terwijl ik er 23 jaar heb gewoond. 
 
-## Dinsdag 23 December - Thuis
+## Dinsdag 23 December - Thuis - 4 uur
 
 Na wat structurering in mijn onderzoeksbestanden aan te brengen ben ik bezig geweest met de kaders van mijn onderzoek aan te geven. Hoe ga ik het structureren? Wat wordt mijn doelstelling? Ik houd er niet zo van om te beginnen met een onderzoeksvraag, kadert je veel te veel. Liever een onderwerp, of een doel. Wat wil ik bereiken met mijn onderzoek? Moet je veel moeilijkere vraagstukken voor oplossen. Wat betekent kunsthistorie eigenlijk? Waarom is het nuttig voor iemand anders om mijn artikel te lezen? Welk publiek wil ik bereiken? Meerdere plannen opgesteld. 
 
@@ -38,7 +38,9 @@ Stad en Kerk. Bovenkerk Kampen.
 
 (Notitie afbeeldingen beschikbaar)
 
-  
+## Woensdag 23 December - Amsterdam - 6 uur
+
+Vandaag heb ik een begin gemaakt aan het schrijven. Dit kwam vooral doordat ik gekeken heb waar het onderzoek aan moest voldoen. Het leek allemaal al aardig vast te liggen. Ik heb alles ook even wat netter uitgedacht. Wat wil ik doen met mijn onderzoek? Ook heb ik een artikel structuur uitgedacht. Maar ik denk dat ik er nog het een en ander aan moet sleutelen. Ik denk dat ik teveel wil en ik denk dat mijn bronnen niet toestaan dat ik ver terug ga in de tijd. Ik vermoed dat ik de situatie rondom de laatste bouwfase het beste kan beschrijven. Maar er is een beginnetje nu!
 
 
 
