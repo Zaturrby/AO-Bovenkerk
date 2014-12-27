@@ -42,6 +42,43 @@ Stad en Kerk. Bovenkerk Kampen.
 
 Vandaag heb ik een begin gemaakt aan het schrijven. Dit kwam vooral doordat ik gekeken heb waar het onderzoek aan moest voldoen. Het leek allemaal al aardig vast te liggen. Ik heb alles ook even wat netter uitgedacht. Wat wil ik doen met mijn onderzoek? Ook heb ik een artikel structuur uitgedacht. Maar ik denk dat ik er nog het een en ander aan moet sleutelen. Ik denk dat ik teveel wil en ik denk dat mijn bronnen niet toestaan dat ik ver terug ga in de tijd. Ik vermoed dat ik de situatie rondom de laatste bouwfase het beste kan beschrijven. Maar er is een beginnetje nu!
 
+## Vrijdag 25 December - Trein en Starbucks -  3 uur
+
+Vandaag heb ik B00130 nog eens goed doorgelezen. Langzaam maar zeker begin ik een compleet beeld te krijgen van wat er aan de hand is met de bovenkerk. Maar ik begin ook steeds meer door te krijgen dat het niet zo makkelijk is. Ook heb ik vandaag het artikel waarin iemand anders achivarisch onderzoek heeft gedaan gelezen. 
+
+## Zaterdag 26 December - Thuis - Ochtend - 3 uur
+
+Vanochtend heb ik nogmaals het literatuurweb doorgebladerd. Ik moest wat informatie hebben dat wat verder van de kerk af staat. Hoe zit het met Rutger van Keulen, of de gebroeders Steenbicker?  Hoe kunnen deze twee (drie) heren het ontwerp van de kerk hebben beïnvloed. Maar hoogstwaarschijnlijk zal ik in het probleem komen van gewoonweg te weinig materiaal. Ik kom nooit en te nimmer aan de 700 pagina’s. Dat kan bij voorbaat vergeten worden. Ik haal wellicht de 300, maar daarmee is het wel gezegd. Moet ik verder van mijn onderwerp gaan afzitten? Moet ik andere kerken erbij betrekken? Andere gebouwen? 
+
+Wat wordt mijn verhaal lijn? Nog steeds kerk en stad? Maar daar is weinig over te zeggen? Beschrijving gebouw, samen met haar historie nog maar een keer herhalen en de geringe connecties die er met een rekeningen van het stadsbestuur, een 16e eeuwse rekening van de kerk, en de contracten Steenbicker en Rutger van Keulen noemen? Misschien de bijzondere staat van de Kamper geestelijkheid noemen, en natuurlijk de verlate beeldenstorm. Ook zou je de restauraties en de torenspits/rechtzettingen kunnen noemen. Maar dan heb je het gehad.
+
+-> Ik kan verder in Rutger van Keulen duiken en dus verwante katedralen, zou opzichzelf wel wat kunnen zeggen over de reden waarom de bovenkerk eruit ziet zoals hij eruit ziet. Misschien nog wel een van de meest interessante insteken. Als hetzelfde mogelijk is voor de Steenbikkers zou het mooi zijn. Relaties met andere kerken. 
+
+### Totaal:
+- Inleiding (200)
+- Stand van Wetenschap (400)
+- Reflectie (400)
+
+#### Mijn opties:
+1. Beschrijving (500)
+2. Bouwhistorie (hoewel beperkt) (500)
+3. Relaties met andere gebouwen (1000)
+- Architecten (Steenbikker, Rutger van Keulen)
+- Periodes / Stijlen
+4. Relatie met de stad Kampen (en bevolking?) (1000)
+- Beeldenstorm
+- Torenspits
+- Restauraties
+
+- Conclusie  (200)
+
+Te samen met inleiding, stand van wetenschap, reflectie en conclusie kom je dan een aardig eind richting de 5000 woorden. Maar waarschijnlijk nog niet ver genoeg. 
+
+Relatie moet het 
+
+
+
+
 
 
 
