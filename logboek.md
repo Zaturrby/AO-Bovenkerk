@@ -46,7 +46,7 @@ Vandaag heb ik een begin gemaakt aan het schrijven. Dit kwam vooral doordat ik g
 
 Vandaag heb ik B00130 nog eens goed doorgelezen. Langzaam maar zeker begin ik een compleet beeld te krijgen van wat er aan de hand is met de bovenkerk. Maar ik begin ook steeds meer door te krijgen dat het niet zo makkelijk is. Ook heb ik vandaag het artikel waarin iemand anders achivarisch onderzoek heeft gedaan gelezen. 
 
-## Zaterdag 26 December - Thuis - Ochtend - 3 uur
+## Zaterdag 26 December - Thuis - Ochtend - 4 uur
 
 Vanochtend heb ik nogmaals het literatuurweb doorgebladerd. Ik moest wat informatie hebben dat wat verder van de kerk af staat. Hoe zit het met Rutger van Keulen, of de gebroeders Steenbicker?  Hoe kunnen deze twee (drie) heren het ontwerp van de kerk hebben beïnvloed. Maar hoogstwaarschijnlijk zal ik in het probleem komen van gewoonweg te weinig materiaal. Ik kom nooit en te nimmer aan de 700 pagina’s. Dat kan bij voorbaat vergeten worden. Ik haal wellicht de 300, maar daarmee is het wel gezegd. Moet ik verder van mijn onderwerp gaan afzitten? Moet ik andere kerken erbij betrekken? Andere gebouwen? 
 
@@ -74,7 +74,15 @@ Wat wordt mijn verhaal lijn? Nog steeds kerk en stad? Maar daar is weinig over t
 
 Te samen met inleiding, stand van wetenschap, reflectie en conclusie kom je dan een aardig eind richting de 5000 woorden. Maar waarschijnlijk nog niet ver genoeg. 
 
-Relatie moet het 
+Een verhaal dat de kerk in een context met zowel ende stad regio plaatst mis ik nog. Hoewel dat nou net de twee boeken kunnen zijn die ik maandag ga halen. Misschien is Wilson’s overzicht ook niet onhandig om te lezen in verband met dit onderzoek, laat natuurlijk ook zien wat hij erin waarneemt en hoe hij het bekijkt. 
+
+Ik denk dat mijn eerste aanpak moet zijn nog het een en ander lezen, voordat ik nog een stap verder ga. De boeken van maandag zullen bepalend zijn voor het voorstel. Ondertussen door blijven reflecteren over het onderzoek. 
+
+-> Misschien oude kaarten van de regio opduikelen, kunnen ook waardevol als bron zijn om te zien hoe de regio eruit zag. 
+
+## Zaterdagmiddag - HEMA Amsterdam - 1.5 uur
+
+Nog even wat gelezen over het stadsbestuur van Kampen, maar afgezien van corruptie en nepotisme viel het eigenlijk tegen qua toepasbaarheid voor mijn onderwerp. Patronaat werd eigenlijk niet besproken. Wel erg interessant om te zien hoe reglementen werden opgesteld en vervangen, totdat er een landelijke verordening voor stadsbestuur kwam.
 
 
 
